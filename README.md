@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Faheemah Akorede
+- 👀 I’m interested in Ecommercewebsite design and marketing strategies
+- 💞️ I’m looking to collaborate onhow to get sales for your store and promote your brand
+- 📫 How to reach me whatsAppme;+2349169418038
+- 😄 Pronouns: english, french, spanish,
+- ⚡ Fun fact:Im so friendly to collaborate with
